@@ -1,4 +1,1 @@
-# excersise
-Jon was here
-Bing Chilling
-Hei
+HJELP HJELP MEG HJELP
