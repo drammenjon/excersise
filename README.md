@@ -6,3 +6,4 @@ god kveld mine medbekjente
 HJELPHJELP HJELP HJELP
 
 island
+.
