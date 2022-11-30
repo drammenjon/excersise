@@ -1,1 +1,5 @@
-HJELP HJELP MEG HJELP
+# excersise
+Jon was here
+Bing Chilling
+Hei
+god kveld mine medbekjente
